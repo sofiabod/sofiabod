@@ -1,1 +1,1 @@
-i build things at 3 startups. personal stuff lives here.
+building across 3 a16z/yc startups. everything interesting is under nda.
